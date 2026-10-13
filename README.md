@@ -13,3 +13,7 @@ Selama mengikuti INTRIVIA 2026, saya mendapatkan banyak pengalaman baru dan bisa
 ## Kesan Pesan Cluster 16 Sejauh Ini
 
 Saya merasa senang bisa menjadi bagian dari Cluster 16 karena dapat berkenalan dengan teman-teman baru dan saling berbagi pengalaman. Semoga Cluster 16 semakin kompak, tetap solid, dan bisa bekerja sama dengan baik sampai seluruh rangkaian kegiatan INTRIVIA selesai. Terima kasih kepada kak senja dan kak nayaka yang sudah membimbing dan menemani kami selama kegiatan berlangsung.
+
+## Harapan Kuliah 
+
+Saya berharap saya dapat lulus tepat pada waktunya. 
